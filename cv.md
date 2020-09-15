@@ -10,11 +10,11 @@ tanyamigaluk@gmail.com
 I am a hardworking and ambitious person. I am a dependable person who is great at time management. 
 I am adept at handling multiple tasks on a daily basis competently and at working well under pressure.
 ## Skills
-*html basics
-*css basics
-*java script basics
-*apex basics
-*Visualforce and Lightning basics
+* html basics
+* css basics
+* java script basics
+* apex basics
+* Visualforce and Lightning basics
 ## Employment
 2007 - Present    accountant, main accountant
 ## Сourses
