@@ -3,7 +3,7 @@
 #### email:
 tanyamigaluk@gmail.com
 #### mobile phone:
-+ 375 29 791 80 39
+(+375) 29 791 80 39
 #### telegram:
 @mihaliukT
 ## Personal Profile Statement
