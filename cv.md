@@ -1,13 +1,13 @@
 ﻿# _**Tatsiana Mihaliuk**_
 ## My contacts:
 
-#### email:
+### email:
 tanyamigaluk@gmail.com
 
-#### mobile phone:
+### mobile phone:
 (+375) 29 791 80 39
 
-#### telegram:
+### telegram:
 @mihaliukT
 
 ## Personal Profile Statement
