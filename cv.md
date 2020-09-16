@@ -32,4 +32,4 @@ I am adept at handling multiple tasks on a daily basis competently and at workin
 *2002 - 2007* student of Brest State Technical University, faculty of Economics, specialty Marketing
 
 ## English
-B1
+**B1**
