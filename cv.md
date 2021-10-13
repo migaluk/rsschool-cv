@@ -25,9 +25,11 @@ I am adept at handling multiple tasks on a daily basis competently and at workin
 *2007 - Present*    accountant, main accountant
 
 ## Сourses
-*october-november 2019*  online courses in VRP
-*august-november 2020* online courses in The Rolling Scopes School
-*2018 - 2021* english courses in a language school Streamline
+*october-november 2019*  online courses in VRP  
+
+*august-november 2020* online courses in The Rolling Scopes School  
+
+*2018 - 2021* english courses in a language school Streamline  
 
 ## Education
 *2002 - 2007* student of Brest State Technical University, faculty of Economics, specialty Marketing
